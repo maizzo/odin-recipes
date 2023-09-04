@@ -1,0 +1,1 @@
+Ik ga proberen een website neer te zetten en hoop daar de bijbehorende skills te leren en te gebruiken
